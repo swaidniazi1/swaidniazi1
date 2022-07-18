@@ -12,7 +12,7 @@ Here are some ideas to know me more.
 - 🤔 I’m looking for help with ideas and suggestions to learn development 
 - 💬 Ask me about anything you like to know 
 - 📫 How to reach me: whatsapp +923478462806
-- 😄 Facebook : https://www.facebook.com/swaidniazi
+- 😄 Facebook : https://www.facebook.com/niazi.swaidniazi
 - ⚡ Do follow or connect me I'm open to suggestions and collaborations. 
 
 <br>
